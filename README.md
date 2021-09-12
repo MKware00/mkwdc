@@ -1,2 +1,3 @@
-# mssdc
-MSS Download Center mirror
+https://mknet.somee.com/dc/mirrors/
+https://mknet.somee.com/dc/mirrors/
+https://mknet.somee.com/dc/mirrors/
