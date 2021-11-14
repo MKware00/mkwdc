@@ -1,5 +1,5 @@
-https://mknet.somee.com/dc/mirrors/
+https://mrkod.eu.org/dc/mirrors/
 
-https://mknet.somee.com/dc/mirrors/
+https://mrkod.eu.org/dc/mirrors/
 
-https://mknet.somee.com/dc/mirrors/
+https://mrkod.eu.org/dc/mirrors/
