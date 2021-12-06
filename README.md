@@ -1,5 +1,5 @@
-https://mrkod.eu.org/dc/mirrors/
+https://mkware.eu.org/dc/mirrors/
 
-https://mrkod.eu.org/dc/mirrors/
+https://mkware.eu.org/dc/mirrors/
 
-https://mrkod.eu.org/dc/mirrors/
+https://mkware.eu.org/dc/mirrors/
